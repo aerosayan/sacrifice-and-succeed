@@ -59,4 +59,4 @@ That would be taking a shortcut. There's only a guarantee for self motivation,
 consistent progress, sense of worth, hunger for success, an unrelenting lust
 towards self improvement and brutal aggression while crushing one's goals.
 
-**_We will try to save as many as we can, last rights for the rest._**
+**_We will try to save as many as we can. Last rights for the rest._**
