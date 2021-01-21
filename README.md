@@ -60,3 +60,5 @@ consistent progress, sense of worth, hunger for success, an unrelenting lust
 towards self improvement and brutal aggression while crushing one's goals.
 
 **_We will try to save as many as we can. Last rites for the rest._**
+
+~syn
